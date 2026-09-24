@@ -245,7 +245,7 @@ If you're building something interesting, feel free to reach out.
 
 ## ⚡ Fun Fact
 
-> I love reading, exploring new ideas, and can talk about almost any topic.
+> I love reading, exploring new ideas, and I can talk about almost any topic.
 
 ---
 
